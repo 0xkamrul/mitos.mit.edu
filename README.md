@@ -1,1 +1,0 @@
-# dicowiki.kro.kr
